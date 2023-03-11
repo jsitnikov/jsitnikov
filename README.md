@@ -1,1 +1,1 @@
-Hi, I'm Jurij :v:
+Hi :v:
