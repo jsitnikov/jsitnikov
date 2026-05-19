@@ -1,1 +1,1 @@
-I am a software developer. Living in Vilnius, Lithuania.
+Software developer based in Vilnius, Lithuania.
